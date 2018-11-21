@@ -1,2 +1,2 @@
-# weddinginvitation.github.io
+# invitation.github.io
 Website
