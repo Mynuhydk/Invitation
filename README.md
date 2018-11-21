@@ -1,2 +1,2 @@
-# MoinAndJahangirWeddinginvitation.github.io
+# Mynuhydk.github.io
 Website
